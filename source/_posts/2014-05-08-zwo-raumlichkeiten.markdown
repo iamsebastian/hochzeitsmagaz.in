@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Marmor"
+date: 2014-05-08 17:28:14 +0200
+comments: false
+shareable: false
+categories: 
+- Ort
+---
+
+*Er.*
+
+Als erste Location, in der wir die Hochzeit austragen könnten, waren wir im noblen Sudhärzer Vier-Sterne-Resoirt, direkt hinter Stolberg gelegen.
+
+<!-- more -->
+
+*Sie* überlegte sich, dass wir *Schindelbruch* ansehen könnten. Rein spekulativ, als Örtlichkeit der Feierei. Genau genommen, hatte ich dabei kaum Details vor Augen. Klar, ich kannte es vom *Hören-Sagen*, aber Spezifikationen taten sich in mir nicht auf, als wir davon sprachen.  
+
+Glücklicherweise, war - nach dem wir erstmals von der Örtlichkeit sprachen - ein Freund zu Besuch. Der tat mir auch direkt den *Gefallen* und erstickte jeglichen Gedanken daran, dort feiern zu wollen: &ldquo;In Bielen, im Hotel *- ein Ort weg, Hotel, beständige Preise, Bowlingbahn -*, bist du mit etwa 10.000 Euro dabei. Schindelbruch liegt dann mal locker flockig bei 20.000&bdquo;. In quasi diesem Augenblick hatte es sich dann für mich auch recht schnell *ad acta* gelegt. *Sie*, beharrlich wie sie ist, sah das natürlich anders. Auch, bat *Sie* mich freundlichst darum - natürlich mit einem gewissen Nachdruck, geäußert durch unbedachtes Boxen in die halbhohe Rippenregion -, dass ich mich mit Räusperungen zurück halte, sollte die freundliche Person, die uns im Resoirt empfangen würde, von fantastischen Preisen sprechen.  
+
+7,5km hinter Stolberg, waren wir dann angekommen. Wir durchfuhren ein großes Eisentor, gesäumt von drei großen Flaggen. Der Parkplatz, abgegrenzt mit hellem Kiesel, das Anwesen, quasi majestätisch, vor uns. Als ich das Gebäude betrachtete, fühlte ich mich gewissermaßen unpassend gekleidet, ohne zu rekapitulieren, was ich trug. Da es der Zufall aber gut mit mir meinte, hatte er mich Zuhause noch in einen halbwegs passablen Cardigan gezwängt. Nach dem Aussteigen, tat ich, wie mir gehießen, und ließ, zur Freude meiner Zukünftigen, meine bäuerlichen Angewohnheiten im Kraftfahrzeug zurück. &bdquo;Boah, hier *trekkt's* wie Hechtsuppe&bdquo;, schoss es mir durch den Kopf, als sich der Erpelpanzer auf meiner ganzen Haut ausbreitete. Erst vermutete ich, dass es der Geist des Hauses war, der nicht wollte, dass wir, mit unserer Einkehr, sein Heim beschmutzten. Dann aber war ich mir sicher, dass es die großen Ladeluftkühler der Fahrzeuge waren, die so einen strengen Wind verursachten. Denn um mich herum, prangten acht- bis zwölfzylindrige Platzhirsche in ihrem Kleid aus Leichtbaualuminium, getarnt durch Klassifizierungsmerkmale von *Familienfahrzeugen*.
+
+D'rin angekommen, kümmerte sich Linus direkt um den Kamin. Etwa einen Meter lang und einen Halben breit, war dieser vom Boden bis zur Decke gemauert und stellte das Wohlfühlzentrum der *Lounge* dar. Umgeben war er von Marmor. Etwa sieben Minuten verweilten wir, bis wir von der stellvertretenden Direktorin - im weiteren *Direktorin* genannt - begrüßt wurden. Begleitet wurde sie von der Veranstaltungsleitern - die im weiteren *Leiterin* genannt werden würde, wenn sie Erwähnung gefunden hätte -, die uns als neuester *Zugang* im Haus vorgestellt wurde. Die Direktorin - mittelgroß, schlank, hellblasse Haut, blaue Augen, gekleidet in einem vertikal gestreiften Monochrom-Kostüm, der ihre Hüfte leicht ausludt, luf man direkt hinter ihr, ansonsten aber einen guten Job darin tat, sie in die Schublade der *Business Class* zu manövrieren - hatte sichtlich kein *junges Paar* erwartet. Ihre Augen teilten mir mit, dass sie die nächste Stunde als verschwendete Zeit betrachtete, auch wenn sie versuchte, dies zu überdecken. Es dauerte etwa zwanzig Minuten, bis sie in ihrer Art *auftaute* und weniger forsch wirkte. Und zwei weitere Minuten, bis sie verarbeitet hatte, dass sie, neben uns, Hirnjogging lieber nur auf dem Kunstrasen betreiben sollte. Während sie ihre kühle, leicht vornehme Fassade nicht aufrecht zu erhalten im Stande war, verhielten wir uns offen und bekümmert, ließen uns aber nicht in die Karten blicken, da ich versprach, mich unvoreingenommen dem Etablissement gegenüber zu zeigen.
+
+Tatsächlich war die Location gut gelungen. Spießig, aber schön. Die *Corporate Identity* zog sich - als sehr angenehm hübscher - roter Faden, quer durch die ganzen Gebäude. Die Vorstellung, dort die Zeremonie zu zelebrieren, gefiel selbst mir, als eher rustikaler Zeitgenosse, recht gut. Wobei wir auch schon an dem Knackpunkt waren: Zeremonie, Zelebrierung - ja. Feiern - nein. Sie sicherte uns später zu, dass sie natürlich beschwerende Gäste abfangen würde und wir in dem Saal *richtig feiern* könnte, aber einvernehmlich war ich mir mit *ihr* sicher, wenn auch mit kleinerem Wehleid, dass eine Feier dort nicht möglich ist. Zumindest nicht so, wie wir feiern: Ausgelassen, etwas lauter und unterhaltend.
