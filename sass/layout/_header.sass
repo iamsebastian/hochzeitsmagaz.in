@@ -15,6 +15,7 @@ header
       &:hover
         background: $lightertint
     svg
+      fill: $lightertint
       margin: 3.517rem 0 0 0
       height: 98px
       @include max-screen(720px)
@@ -36,8 +37,7 @@ header
     text-align: center
     // font-style: italic
     @include font
-    .hochzeitsblog
-      color: $lightertint
+    @include hochzeitsblog
     // border-bottom: 1px solid $lightertint
     a
       text-decoration: none
