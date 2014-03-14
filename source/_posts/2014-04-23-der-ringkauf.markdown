@@ -4,9 +4,13 @@ title: "Der Ringkauf"
 date: 2014-03-29 12:00:00 +0200
 comments: true
 sharing: false
+author: Sebastian
 categories: 
 - Ring
+- Er
 ---
+
+*Er.*
 
 "Halb elf muss ich zum Sport", sagt sie. "Sensationell", denkt er. Da kann er ja gleich noch *etwas* erledigen. Gedacht, getan. Sie laufen die hölzerne Treppe hinunter und gehen zum Wagen. Linus nimmt hinten Platz, sie auf dem Beifahrersitz, er auf dem Fahrersitz. "Holst Du mich dann nach dem Sport wieder ab?", fragt sie. "Klar!", antwortet er mit einem Hauch an Entspanntheit im Blick.
 
