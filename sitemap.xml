@@ -1,16 +1,20 @@
 <?xml version='1.0' encoding='UTF-8'?>
 <urlset xmlns='http://www.sitemaps.org/schemas/sitemap/0.9'>
     <url>
+        <loc>http://hochzeitsmagaz.in//github/blog/2014/03/29/der-ringkauf/</loc>
+        <lastmod>2014-04-23T18:16:41+02:00</lastmod>
+    </url>
+    <url>
         <loc>http://hochzeitsmagaz.in//github/blog/2014/04/23/erste-ausgabe/</loc>
         <lastmod>2014-04-23T09:43:13+02:00</lastmod>
     </url>
     <url>
         <loc>http://hochzeitsmagaz.in//github/blog/archives/</loc>
-        <lastmod>2014-04-23T09:43:13+02:00</lastmod>
+        <lastmod>2014-04-23T18:16:41+02:00</lastmod>
     </url>
     <url>
         <loc>http://hochzeitsmagaz.in//github/</loc>
-        <lastmod>2014-04-23T09:43:13+02:00</lastmod>
+        <lastmod>2014-04-23T18:16:41+02:00</lastmod>
     </url>
     <url>
         <loc>http://hochzeitsmagaz.in//github/robots.txt</loc>
