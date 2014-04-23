@@ -6,7 +6,7 @@ comments: true
 categories: hochzeit
 ---
 
-Erscheint nun hier,
-der erste Post,
-Trink 'n Bier,
-und sage Prost!
+Erscheint nun hier,  
+der erste Post,  
+Trink 'n Bier,  
+und sage Prost!  
