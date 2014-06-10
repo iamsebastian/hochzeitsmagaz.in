@@ -1,0 +1,25 @@
+---
+layout: post
+title: "Klauringschau"
+date: 2014-06-10 18:24:08 +0200
+comments: false
+shareable: false
+author: Sebastian
+categories:
+- Ring
+- Er
+---
+
+*Er.*
+
+Dort, wo ich *einst* den Verlobungsring erworben hatte, findet auch zwei mal jährlich eine Trauringschau statt. Im März und im Mai eines jeden Jahres, lädt der örtliche Juwelier dazu ein. Doch zu was der Juwelier da genau einlädt, hat ein anderer Mitbürger scheinbar falsch verstanden.
+
+<!-- more -->
+
+An einem Samstagvormittag hatten wir erstmals vor, die Vorstellungen davon, wie unsere Eheringe aussehen sollten, in konkretere Modelle *zu fassen*. Mit genau diesem Vorhaben, strebten wir den Besuch der Trauringschau an. Also packten sich alle Familienmitglieder in den Wagen der Familie und fuhren in den südlichen Teil der Stadt, der, von uns, sonst hauptsächlich zur Nahrungsaufnahme aufgesucht wird. Zwischen Dönertourismus und *Pfennigfuchserei* findet sich bekanntlich am Samstag Vormittag recht zügig ein Parkplatz, da die weiteren Konsumenten, die sich zu dieser Uhrzeit im Areal aufhalten, eher mit der Straßenbahn oder vom Schlafplatz am örtlichen Fließgewässer anreisen.
+
+Wir betreten das Geschäft, wo sich bereits mehrere heiratswütige Frauen mit ihren Opfern aufhalten. Die Frauen sind - bei der Beratung durch die Angestellten vornehmlich eifrig nickend - mit ihren glitzernden Rohrstücken beschäftigt. Die Männer machen da eher einen verhalteneren Eindruck und scheinen die Brocken, in Form von Preisauszeichnungen, nur eher widerwillig schlucken zu können. Kein Paar ist mit Kind dabei. Soll heißen, wir haben entweder alles richtig, oder alles falsch gemacht. &bdquo;Vielleicht haben die alle noch gar keine Kinder&ldquo;, schießt es mir durch den Kopf. Bis ich zu dem Schluss komme, dass &bdquo;die anderen Männer einfach alle vorhaben, die Katze *im Sack* zu kaufen&ldquo;, dauert es einen Augenblick.
+
+Wenige Minuten dauert es, dann sind auch wir an der Reihe, unsere Vorstellungen äußern zu können und dementsprechend trotzdem alles ansehen zu müssen. Die kompetente Beratung der angestellten Dame erwies sich dabei als äußerst hilfreich, verstand sie es doch äußerst geschickt, sämtliche Erklärungen über Gehalt an Edelmetallen in vorbildlichster Form durch einander zu würfeln. Versprach sie erst, 585'er Gold wäre härter, sagte sie später, es sei weicher und durch weniger Abrieb unverwüstlicher. Wenig später, warf sie dann auch noch die Schattierungsunterschiede zwischen Edelstahl, Weißgold, Platin und Paladium durcheinander. Reizend. So, oder so. Unsere Vorstellungen äußerten wir, in Adjektivform, wie folgend: solide, kantig, kräftig, grob, unverspielt und unverblümt. Schlosserringe sollte sie uns nicht zeigen, auch wenn sich die Beschreibung so liest, aber ein wenig Struktur wollten wir dem Ablauf dabei schon geben. Farblich hielten wir uns dabei recht arg an monochromen Schattierungen auf: Weißgold, vornehmlich. Nicht nur, dass Silber bei der Präsentation eine geringe Rolle spielen sollte, wir wollten auch, dass Verlobungs- und Ehering von der zukünftigen Braut gleichermaßen getragen werden kann. Gern, durfte die Oberflächenbeschaffenheit des Ringes Struktur aufweisen. So kam es, wie es kommen musste: Runde, filigrane Goldstücke und Bi-Color Ringe, fanden bei der Präsentation ihren Platz. Erneute Aufarbeitung unserer Vorstellungen, brachten die Angestellte dann aber doch in die richtige Bahn und wir hatten ein Konvolut an zwei Dutzend Ringtabletts vor uns. Eifrig, zeigte sie uns eins nach dem anderen und wir konkretisierten die Vorstellungen weiter gehend, als mich plötzlich ein halblautes &bdquo;Hey!&ldquo; aus dem Strudel der Juwelen riss und ich mich semi-erschrocken umdrehte. Ich stand, mit Sohnemann auf dem Arm, quasi am spitz-zulaufenden Ausgangs des Geschäfts und sah' in diesem Augenblick, wie nicht nur Pärchen als Kundschaft im Lokal waren. Auch ein einzelner Mitbürger, offensichtlich nicht dem typisch deutschen, eher hellem Hautton, zugehörig, sondern quasi dunkleren Typs, hatte sich unter die zukünftigen Brautpaare gemischt. Messenger-Bag um die Schulter, mittlere Größe, mittleres Alter, überhöhte Geschwindigkeit, versuchte er die Lokalität zu verlassen. In den Armen, ein Präsentationstablett, gespickt mit einem dutzend Ringen. Während der Chef seine Laufgeschwindigkeit ebenfalls rasch auf die Sprintgeschwindigkeit eines Durchschnitts-Fünfzigers beschleunigte, hallte er ein zynisches &bdquo;das lassen wir aber mal schön hier, mein Freundchen&ldquo;, durch den Raum und begann, an dem Strauchdieb zu zerren. Dieser erwiderte ein, doch recht gereiztes, &bdquo;lass' mich los&ldquo; und versuchte sich zu entwinden. Tatsächlich schaffte er es, sich los zu machen, allerdings ohne die *heiße Ware*. Dem Täter das Tablett entrissen, finalisierte der Chef die gescheiterte Tat mit einem salonfähigen Tritt in den Allerwertesten, des nicht ganz so feinen Herren.
+
+Mein Adrenalin sprudelte in raschen Mengen durch den Körper, die Konzentration war *geklaut* und ich beschäftigte mich mit dem Verlassen des Geschäftes. Also gingen wir - mit der Konzentration.
