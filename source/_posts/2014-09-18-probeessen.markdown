@@ -1,0 +1,35 @@
+---
+layout: post
+title: "Probeessen"
+date: 2014-09-18 09:43:46 +0200
+comments: false
+shareable: false
+author: Sebastian
+categories:
+- Er
+- Location
+---
+
+*Er.*
+
+Pünktlich zu einem Spiel der deutschen Fußball-Nationalmannschaft war es soweit. Unser Probeessen stand an. Das Probeessen, was die Location sichern sollte. Nicht einfach nur ein Probeessen. Nein, nein. *Das* Probeessen. Natürlich war es ohnehin schwierig, uns von dem Kurs ab zu bringen, die Location als Feierlocation aus zu erwählen - dennoch wollte man gern etwas Bestätigung. Und was kam da als Bestätigung - oh je, oh je.
+
+<!-- more -->
+
+Ok, die Location wurde von uns sorgfältig ausgewählt. Ein paar Ausflüge standen an, aber noch viel mehr, zerbrachen wir uns den Kopf darüber.
+
+"Vorsichtshalber schon einmal reservieren", war das Motto, als wir die Location das erste mal ansahen. Die Hälfte der Gäste würden wir in den häuslichen Zimmern unter bekommen, das passte also.
+
+Als wir reserviert hatten, und wieder Zuhause angekommen sind, habe ich auch schnell angefangen, sämtliche Versuche von *ihr* zu blocken, was die Diskussion über andere Locations anging. Zuviel, war mir das Thema geworden. Zu sehr, hatte ich mich für die eine Location entschieden. Sturr, wie ich bin, bin ich von meinem Kurs natürlich auch nur schwer ab zu bringen. Nicht, dass es bei *ihr* anders wäre, doch für gewöhnlich habe ich nicht nur den längeren Atem, sondern auch die performanteren Argumente. Sie hat dafür *(fast)* immer das letzte Wort. Sind ihre letzten Worte allerdings: *&bdquo;Du hast (ja) recht&ldquo;*, ist es mir auch herzlich egal, ob sie das letzte Wort hat.
+
+Lang hin, lang her - die Location mochten wir sehr. Also sollte es ein Probeessen werden, bei dem wir uns all das noch mal bestätigen könnten. Um nicht nur ein *normales* Dinner zu genießen, sondern das Personal auch ausgelastet unter Stress agieren sehen zu können, wartete ich einen Termin ab, an dem ein *Event* angekündigt war. So stand als nächste Terminlichkeit ein *BBQ* mit Pauschalbetrag an. Das passte natürlich *wie die Faust auf's Auge*.
+
+Zwischen Reservierung und Termin lagen etwa zwei, drei Wochen Zeit. Zeit, die *- wie üblich -* im Flug verging. Meine Mutter wurde mit der Betreuung des Nachwuchses beauftragt und wir reisten ab.
+
+Der Himmel versprach einen lauen Sommerabend. Er, der Himmel, war so blau, wie er nur sein konnte. Keine Wolke zu sehen und die Temperaturen waren überschlagen. Wir entfuhren der Stadt, und passierten die Route zwischen hügeligen, saftigen, grünen Wiesen und potenten, dunklen Wäldern. Die Wälder waren so dicht und bewachsen, dass kaum Lichteinfall vorherrschte. Dadurch wirkten sie sehr dunkel und befangen. Die Wiesen hingegegen, die den Eingang zu den Wäldern ebneten, waren leuchtend grün. Dieses typische laubgrün, dass im Juni herrscht. Auch dem Zottelvieh schien das Grün zu schmecken. So stand es in aller Seelenruh', mit dichtem Fell behangen, auf dem Gras und lies es sich schmecken. Bestes *Highland-Rind*. Gesund, groß, stark, unbesorgt.
+
+Auf Grund der noch angenehmen Temperaturen, setzten wir uns zum Barbeque natürlich ins Freie. Eine rustikale, aus ganzen Stämmen geklüpfelte Holzbank lud zum Sitzen ein; ein großer Holztisch zum Auflehnen. Natürlich wurde *- zu meiner vollen Freude -* auch das Fußballspiel übertragen, von dem ich die erste Halbzeit beim *Public Viewing* genießen konnte. Leider saßen wir erst einmal nur hinter der Fernseh-Apparatur. Doch keine halbe Bierlänge später, wurde ein Platz mit direktem Blick auf das Telegerät frei. *&bdquo;Hervorragend&ldquo;*, ging es mir durch den Kopf, *&bdquo;der Abend kann nur super werden&ldquo;*. Sogar am Buffet konnte man das Spiel weiter beobachten, was meine Aufmerksamkeit - zugegebenermaßen - etwas in den Hintergrund rückte.
+
+Kurz verschnauft und angekommen, begaben wir uns zum Buffet. Man erklärte uns, was es alles gab und was es noch geben könnte, würde man es sich wünschen. Ja, da fiel dann auch schon der Begriff *American Smoker* und ich ließ mich natürlich nicht zwei mal bitten - schließlich muss man ja auch ganz genau wissen, was man seinen potenziellen Gästen da *vor die Nase schnallt*. Ich ließ mir etwas Rücken vom Highland-Rind aus dem Smoker geben. In Alufolie war es ordentlichst verpackt und ich war gespannt, wie es schmecken würde. Dazu nahm ich mir etwas Sauciere, ein bisschen Salat und klassische Rosmarinkartoffeln. *Sie* verhielt sich ähnlich und nahm etwa gleiches. Am Sitzplatz wieder angekommen, entfaltete ich in aller Ruhe das Alufolienpaket. Gott, bereits der Duft, der mir in die Nase stieg, ließ meine Speicheldrüsen auf Mandelgröße anschwellen. So lag es vor mir, der Highlander, der vor ein paar Tagen noch auf der hügeligen Wiese nebenan graste. Der Rauch, der dem Saft des Fleisches entstieg, war eine sanfte Kombination aus griffiger Buche und temperamentvollem Pfeffer. Das Fleisch zerfiel wie von Geisterhand, als ich es mit der Flanke meiner Schneidklinge berührte. Die Fasern glänzten vor Schmackhaftigkeit, die Farbe war eine Melodie im Spektrum der Fleischzubereitung und es war de facto das beste *(fleischige)* Grillgut, was ich je zu mir genommen habe. Ich mach' mir nicht viel aus Fleisch. Nicht da, nicht heute und sicher auch nicht morgen. Aber das war definitiv das beste, was man mit der Struktur von tierischem Eiweiß anstellen konnte. Die Symbiose des Geschmacks war eine Leiter voller Harmonien, die mit jedem Bissen rauf und runter zu tanzen vermochte. Der Salat und die restlichen Angebote, standen dem in nichts nach. Zum Schluss - das war dann der dritte Gang - nahm *sie* sich noch etwas Wels aus dem Smoker an und auch der, war auf den Punkt genau das, was man mit ihm machen sollte, wenn man Tierisches mag.
+
+So stelle man sich vor: Man baut eine riesen Torwand an Ansprüchen und Vorstellungen auf. Verdrahtet das alles miteinander und nach abertausenden Verknüpfungen stellt man fest, dass das ganze Geflecht quasi undurchdringbar ist. Es scheint unumgänglich, gewisse Konstrukte aufzulösen, um eine scheinbar korrekte Lösung aufbieten zu können. Und dann kommt um die Ecke ein kleiner Gedanke, der *dich* anzwinkert. Er positioniert sich vor der Torwand, fängt gesellig an zu pfeifen. Du kommt mit ihm ins Gespräch, er beeindruckt dich durch seine Eloquenz und seine Bereitschaft, Deine, scheinbar riesigen, Probleme lösen zu können. Und als das alles zu gut klingt, um wahr zu sein und es sich einfach zu gut anfühlt, um plausibel zu wirken, geht der Gedanke einen halben Schritt nach hinten und zirkelt die Lösung, in Form eines illusorischen Balls, mit einem elfenhaften Kunstschuss durch die Torwand. Es wird bunt vor Deinen Augen, ein Feuerwerk von Glückshormonen, Deine Synapsen erbeben in multiplen Orgasmen und *Du* beginnst mit Lächeln. Das Lächeln ebbt nicht ab. Du begleichst die Rechnung, steigst ins Auto, legst *deine* Hand bestimmend auf den Schenkel *deiner* Frau, schließt die Wohnungstür auf, legst Dich nieder, nimmst *ihre* Hand und weißt: Es ist richtig. Genau so, wie *du* es machst, ist es richtig und das Glück, dieser Welt, obliegt nur *dir*. *&bdquo;Punkt&ldquo;***.**
